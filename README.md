@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DaniyalHassan0
-- 👀 I’m interested in Computer Games and Game Development
+- 👀 I’m interested in Computer Games and Gaming Development
 - 🌱 I’m currently learning Computer Science
 - 📫 You can reach me at daniyalhassan010@gmail.com
 
